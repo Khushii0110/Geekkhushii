@@ -1,0 +1,2 @@
+# Geekkhushii
+ Explore the digital world of Khushi Tiwari! 🚀 Dive into my portfolio to discover a fusion of technology and creativity. As a passionate B.Tech Computer Science student, I bring coding proficiency and content creation skills together. 🖥️✨ Explore my projects, certifications, and more. Connect with me on LinkedIn and GitHub to be part of the journey! Let's innovate and create together. 🌐🤝
